@@ -32,8 +32,7 @@ SELECT category, AVG(valuation)
 FROM startups
 GROUP BY category;
 
-/* 
-9. Return the average valuation in each category. 
+/* 9. Return the average valuation in each category. 
 Round the averages to two decimal places. 
 */
 
