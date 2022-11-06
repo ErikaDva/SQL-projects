@@ -1,1 +1,79 @@
-⨯ㄠ‮楖睥琠敨琠扡敬⨠യ匊䱅䍅⁔‪਍剆䵏猠慴瑲灵㭳਍਍⨯㈠‮慃捬汵瑡⁥桴⁥潴慴⁬畮扭牥漠⁦潣灭湡敩⁳湩琠敨琠扡敬⨠യ匊䱅䍅⁔佃乕⡔⤪਍剆䵏猠慴瑲灵㭳਍਍⨯㌠‮慃捬汵瑡⁥桴⁥潴慴⁬慶畬⁥景愠汬挠浯慰楮獥椠⁮桴⁥慴汢⁥⼪਍䕓䕌呃匠䵕瘨污慵楴湯ഩ䘊佒⁍瑳牡畴獰഻ഊ⼊‪⸴圠慨⁴獩琠敨栠杩敨瑳愠潭湵⁴慲獩摥戠⁹⁡瑳牡畴㽰⨠യ匊䱅䍅⁔䅍⡘慲獩摥ഩ䘊佒⁍瑳牡畴獰഻ഊ⼊‪⸵删瑥牵⁮桴⁥慭楸畭⁭浡畯瑮漠⁦潭敮⁹慲獩摥搠牵湩⁧匧敥❤猠慴敧⨠യ匊䱅䍅⁔䅍⡘慲獩摥ഩ䘊佒⁍瑳牡畴獰਍䡗剅⁅瑳条㵥匧敥❤഻ഊ⼊‪⸶䤠⁮桷瑡礠慥⁲慷⁳桴⁥汯敤瑳挠浯慰祮漠⁮桴⁥楬瑳映畯摮摥‿⼪਍䕓䕌呃䴠义昨畯摮摥ഩ䘊佒⁍瑳牡畴獰഻ഊ⼊‪⸷删瑥牵⁮桴⁥癡牥条⁥慶畬瑡潩⁮⼪਍䕓䕌呃䄠䝖瘨污慵楴湯ഩ䘊佒⁍瑳牡畴獰഻ഊ⼊‪⸸删瑥牵⁮桴⁥癡牥条⁥慶畬瑡潩⁮湩攠捡⁨慣整潧祲†⼪਍䕓䕌呃挠瑡来牯ⱹ䄠䝖瘨污慵楴湯ഩ䘊佒⁍瑳牡畴獰਍則問⁐奂挠瑡来牯㭹਍਍⨯ഠ㤊‮敒畴湲琠敨愠敶慲敧瘠污慵楴湯椠⁮慥档挠瑡来牯⹹ഠ刊畯摮琠敨愠敶慲敧⁳潴琠潷搠捥浩污瀠慬散⹳ഠ⨊യഊ匊䱅䍅⁔慣整潧祲‬佒乕⡄噁⡇慶畬瑡潩⥮‬⤲਍剆䵏猠慴瑲灵൳䜊佒偕䈠⁙慣整潧祲഻ഊ⼊‪〱‮敒畴湲琠敨愠敶慲敧瘠污慵楴湯椠⁮慥档挠瑡来牯⹹ഠ刊畯摮琠敨愠敶慲敧⁳潴琠潷搠捥浩污瀠慬散⹳ഠ伊摲牥琠敨氠獩⁴牦浯栠杩敨瑳愠敶慲敧⁳潴氠睯獥⹴਍⨠യഊ匊䱅䍅⁔慣整潧祲‬佒乕⡄噁⡇慶畬瑡潩⥮‬⤲਍剆䵏猠慴瑲灵൳䜊佒偕䈠⁙慣整潧祲਍剏䕄⁒奂㈠䐠卅㭃਍਍⨯ㄠ⸱删瑥牵⁮桴⁥慮敭漠⁦慥档挠瑡来牯⁹楷桴琠瑯污渠浵敢⁲景挠浯慰楮獥琠慨⁴敢潬普琠⁯瑩⨠യഊ匊䱅䍅⁔慣整潧祲‬佃乕⡔慮敭ഩ䘊佒⁍瑳牡畴獰਍則問⁐奂挠瑡来牯㭹਍਍⨯ㄠ⸲䘠汩整⁲桴⁥敲畳瑬琠⁯湯祬椠据畬敤挠瑡来牯敩⁳桴瑡栠癡⁥潭敲琠慨⁮牦敥挠浯慰楮獥椠⁮桴浥⨠യഊ匊䱅䍅⁔慣整潧祲‬佃乕⡔⤪਍剆䵏猠慴瑲灵൳䜊佒偕䈠⁙慣整潧祲਍䅈䥖䝎䌠問呎⨨ ‾ള伊䑒剅䈠⁙′䕄䍓഻ഊ⼊‪㌱‮桗瑡椠⁳桴⁥癡牥条⁥楳敺漠⁦⁡瑳牡畴⁰湩攠捡⁨潬慣楴湯‿⼪਍਍䕓䕌呃氠捯瑡潩Ɱ䄠䝖攨灭潬敹獥ഩ䘊佒⁍瑳牡畴獰਍則問⁐奂氠捯瑡潩㭮਍਍⨯ㄠ⸴圠慨⁴獩琠敨愠敶慲敧猠穩⁥景愠猠慴瑲灵椠⁮慥档氠捯瑡潩Ɱ眠瑩⁨癡牥条⁥楳敺⁳扡癯⁥〵㼰⨠യഊ匊䱅䍅⁔潬慣楴湯‬噁⡇浥汰祯敥⥳਍剆䵏猠慴瑲灵൳䜊佒偕䈠⁙潬慣楴湯਍䅈䥖䝎䄠䝖攨灭潬敹獥 ‾〵㬰
+/* 1. View the table */
+SELECT * 
+FROM startups;
+
+/* 2. Calculate the total number of companies in the table */
+SELECT COUNT(*)
+FROM startups;
+
+/* 3. Calculate the total value of all companies in the table */
+SELECT SUM(valuation)
+FROM startups;
+
+/* 4. What is the highest amount raised by a startup? */
+SELECT MAX(raised)
+FROM startups;
+
+/* 5. Return the maximum amount of money raised during 'Seed' stage */
+SELECT MAX(raised)
+FROM startups
+WHERE stage='Seed';
+
+/* 6. In what year was the oldest company on the list founded? */
+SELECT MIN(founded)
+FROM startups;
+
+/* 7. Return the average valuation */
+SELECT AVG(valuation)
+FROM startups;
+
+/* 8. Return the average valuation in each category  */
+SELECT category, AVG(valuation)
+FROM startups
+GROUP BY category;
+
+/* 
+9. Return the average valuation in each category. 
+Round the averages to two decimal places. 
+*/
+
+SELECT category, ROUND(AVG(valuation), 2)
+FROM startups
+GROUP BY category;
+
+/* 10. Return the average valuation in each category. 
+Round the averages to two decimal places. 
+Order the list from highest averages to lowest.
+ */
+
+SELECT category, ROUND(AVG(valuation), 2)
+FROM startups
+GROUP BY category
+ORDER BY 2 DESC;
+
+/* 11. Return the name of each category with total number of companies that belonf to it */
+
+SELECT category, COUNT(name)
+FROM startups
+GROUP BY category;
+
+/* 12. Filter the result to only include categories that have more than free companies in them */
+
+SELECT category, COUNT(*)
+FROM startups
+GROUP BY category
+HAVING COUNT(*) > 3
+ORDER BY 2 DESC;
+
+/* 13. What is the average size of a startup in each location? */
+
+SELECT location, AVG(employees)
+FROM startups
+GROUP BY location;
+
+/* 14. What is the average size of a startup in each location, with average sizes above 500? */
+
+SELECT location, AVG(employees)
+FROM startups
+GROUP BY location
+HAVING AVG(employees) > 500;
